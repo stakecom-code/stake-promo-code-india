@@ -1,6 +1,6 @@
 # Stake.com Promo Code India 'HELLA200' & Get up to ₹260,000 | March 2025
 
-​Stake.com is a premier online casino and sportsbook platform that has garnered significant attention among Indian users. With its extensive range of games, competitive betting odds, and enticing promotions, Stake.com offers a comprehensive gambling experience. One of the standout features for Indian players is the exclusive promo code "HELLA200," which provides a generous bonus of up to ₹260,000.​
+[Stake.com](https://stake.com/?offer=hella200&c=7896e10434) is a premier online casino and sportsbook platform that has garnered significant attention among Indian users. With its extensive range of games, competitive betting odds, and enticing promotions, Stake.com offers a comprehensive gambling experience. One of the standout features for Indian players is the exclusive promo code "HELLA200," which provides a generous bonus of up to ₹260,000.​
 
 ## Latest Stake.com India Promo Codes
 | 🔥 Bonus Type | Promo Code | Details |
